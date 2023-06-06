@@ -1,1 +1,0 @@
-The [Institute of Social and Preventive Medicine (ISPM)](https://www.ispm.unibe.ch) at the [University of Bern](https://www.unibe.ch) provides undergraduate and postgraduate education and carries out interdisciplinary research in the fields of social and behavioural health, clinical epidemiology and biostatistics, and international and environmental health.
